@@ -35,9 +35,11 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A woman kilde with kindnesse. Written by Tho. HeywoodHeywood, Thomas, d. 1641.1607Approx. 133 KB of 
+
+1. The Prologue.
+
 #####Body#####
-A woman kilde with kindnesse. Written by Tho. HeywoodHeywood, Thomas, d. 1641.1607Approx. 133 KB of 
+Enter maister Iohn Frankeford, Sir Francis Acton, Mistris Acton, sir Charles Mountford, Maister Malb
 **Types of content**
 
   * There are 1935 **verse** lines!
